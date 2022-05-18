@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **no one**
 
-- 💬 Ask me about **artificial intelligence**
+- 💬 Ask me about **nothing**
 
 - 📫 How to reach me **xpxpcom123@gmail.com**
 
